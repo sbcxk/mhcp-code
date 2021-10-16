@@ -2,4 +2,9 @@
 盲盒交友
 对象盲盒
 java版本
-![07 4F(R)GV$B@H7R06LZRFQ](https://user-images.githubusercontent.com/67060479/137145012-03260e33-1bf5-4b9a-97f3-c17997d554d7.png)
+
+QQ交流群：962437732
+问题咨询联系QQ：1079654850
+
+教程网址（附带视频）：http://blog.piplong.cn/index.php/2021/10/16/%e7%9b%b2%e7%9b%92%e6%90%ad%e5%bb%ba%e6%95%99%e7%a8%8b/
+
